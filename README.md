@@ -1,4 +1,5 @@
-![1234124124124.jpg](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/f3b3d3c1-1963-4222-b3cd-7f998c7b5261/1234124124124.jpg)
+
+![사아아진](https://user-images.githubusercontent.com/80516711/149958453-c6626784-2c84-4ca5-88fe-7c327b3b2698.jpg)
 
 - 새로운 것을 배우고, 도전하는 것을 좋아합니다.
 - 꾸준히 성장하는 인재
