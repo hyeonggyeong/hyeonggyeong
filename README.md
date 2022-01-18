@@ -1,4 +1,4 @@
-
+<img src = "![사아아진](https://user-images.githubusercontent.com/80516711/149958453-c6626784-2c84-4ca5-88fe-7c327b3b2698.jpg)" width="30%" height="30%">
 - 새로운 것을 배우고, 도전하는 것을 좋아합니다.
 - 꾸준히 성장하는 인재
 - **#빅데이터 분석 #Data Scientist  #Machine Learning**
