@@ -10,8 +10,6 @@
 
 💌 feels1010@naver.com
 
-[hyeonggyeong - Overview](https://github.com/hyeonggyeong)
-
 ---
 
 ---
